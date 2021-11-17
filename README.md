@@ -1,3 +1,5 @@
+## Please add me as an Agent Developer [Published] on Discord, my discord username is golodenzero#6304
+
 # Time Beetween Transactions Agent
 
 ## Описание
